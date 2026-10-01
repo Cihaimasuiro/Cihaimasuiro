@@ -1,1 +1,5 @@
-Help me learn
+“Three Rules of Work:
+Out of clutter find simplicity.
+From discord find harmony.
+In the middle of difficulty lies opportunity.”
+― Albert Einstein
